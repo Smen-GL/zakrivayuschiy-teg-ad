@@ -1,1 +1,1 @@
-https://github.com/LapFilll/zakrivayuschiy-teg-ad
+https://github.com/Smen-GL/zakrivayuschiy-teg-ad
